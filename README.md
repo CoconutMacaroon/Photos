@@ -1,10 +1,6 @@
 ## Introduction
 
-Here are the photos I have taken weekly.  
-
-## Pictures
-
-These are the photos
+Here are my weekly photos.
 
 ### Week One
 
