@@ -1,6 +1,6 @@
 ## Introduction
 
-Here are my weekly photos.
+Every week, I am taking a photo of something. These are those photos. Hope you enjoy them!
 
 ### Week One
 
